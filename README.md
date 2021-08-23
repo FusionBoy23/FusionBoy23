@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FusionBoy23
+- 👀 I’m interested in Coding and ROM hacks.
+- 🌱 I’m currently learning how to use hakchi2.
+- 💞️ I’m looking to collaborate on any sort of project.
+- 📫 You can email me at anthoknee323@gmail.com
